@@ -53,3 +53,4 @@ Thank you for using **ත්‍රිපිටක විභාග Past Papers**.
 
 > _"Your privacy is our priority."_  
 > — The Tripitaka App Team
+> -Updated February 1 2026
